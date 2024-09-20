@@ -1,2 +1,0 @@
-# julioinurreta.com
-julioinurreta.com
